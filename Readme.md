@@ -2,6 +2,6 @@
 ![BTC Logo](/images/btc.png)
 
 
-As we said:
+Comme ils l'ont bien dit:
 
 > Nul n'entre ici s'il n'est codeur.
