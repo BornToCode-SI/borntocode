@@ -11,7 +11,8 @@ _Si vous relisez deux fois, vous vous rendrez compte qu'il n'y a pas de coincide
 
 > Gpxqkgu wp ockn cxge Pqo, rtgpqo, vénérjqpg, gockn uwt uwrkphqdqtpvqeqfg@iockn.eqo
 
-![Il sait comment](/images/ilsait.jpg)
-![Il sait comment](/images/ilsait.jpg)
+_Si vous aimez toujours les scanner:_
+![Code niveau 2](/recrutement/code2.png)
+
 
 
