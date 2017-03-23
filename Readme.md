@@ -6,7 +6,7 @@ Comme ils l'ont bien dit:
 
 > Nul n'entre ici s'il n'est codeur.
 
-![Il sait comment](/images/caesar.jpg)
+![Il sait comment](/images/ilsait.jpg)
+![Il sait comment](/images/ilsait.jpg)
 
-
-_Qzhauqe gz ymux mhqo Zay, bdqzay, féxébtazq, qymux egd egbuzranadzfaoapq@symux.oay_
+_Gpxqkgu wp ockn cxge Pqo, rtgpqo, vénérjqpg, gockn uwt uwrkphqdqtpvqeqfg@iockn.eqo_
