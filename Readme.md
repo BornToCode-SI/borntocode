@@ -1,6 +1,7 @@
 # Born To Code
 ![BTC Logo](/images/btc.png)
 
+Vous êtes passionnés de code et de défis, vous êtes chez vous.
 
 Comme ils l'ont bien dit:
 
